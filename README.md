@@ -1,0 +1,1 @@
+# diplom-of-adaptive-version2
